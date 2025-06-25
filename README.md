@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hl450.pages.dev/">黑料社</a>
 
-点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜936</a>
+点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜</a>
 
 点击访问：<a href="https://cg05-01.pages.dev/">暗网禁区网</a>
 
